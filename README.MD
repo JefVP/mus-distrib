@@ -12,4 +12,4 @@ I would appreciate it if you at least credit me and link my youtube channel and 
 
 ## Special thanks!
 
-The people I speak to regularly, you know who you are. You guys inspire me not only as an artist but also as a person.
+The people I speak to regularly, you know who you are. You guys inspire me not only as an artist you guys inspire me as a human being.
